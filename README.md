@@ -1,0 +1,1 @@
+The Index of Multiple Deprivation for England and Wales 2025 is detailed in the statistical release at https://www.gov.uk/government/statistics/english-indices-of-deprivation-2025/english-indices-of-deprivation-2025-statistical-release
